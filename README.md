@@ -1,0 +1,1 @@
+# recrutting assistant for HR management
